@@ -1,1 +1,1 @@
-Hello, I made this because I was bored.
+Hello, review my shit code.
